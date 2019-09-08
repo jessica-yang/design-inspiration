@@ -7,3 +7,5 @@
 - http://alfoart.com/portfolio.html
 - https://samkapila.com
 - https://www.annfriedman.com
+- http://www.sarahlichang.com
+- http://www.laurenicolesmith.com
